@@ -1,5 +1,5 @@
 # 💬 Lucas Hen
-<a href="https://instagram.com/soulucashen/" target="_blank">Instagram</a> • <a href="https://discord.gg/95mzD4v5Sg" target="_blank">Discord</a> • <a href="mailto:lhdsa@icloud.com">E-mail</a> 
+<a href="https://instagram.com/soulucashen/">Instagram</a> • <a href="https://discord.gg/95mzD4v5Sg">Hensa Discord</a> • <a href="mailto:lhdsa@icloud.com">E-mail</a> 
 
 -------
 
