@@ -10,4 +10,4 @@
 
 -------
 
-![Hensa](https://cdn.discordapp.com/attachments/1130691272848445530/1201996706351435796/2.2.png?ex=65f9fe2a&is=65e7892a&hm=252fa67bddcd7e3c9433dfe24ed33897e00a6073b949002d07c57b617d402a8d& "Hensa")
+![Hensa](https://hensa.store/Mawu/image/LogoHensa.png "Hensa")
